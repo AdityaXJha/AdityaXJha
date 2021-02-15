@@ -1,1 +1,1 @@
-![Aditya](https://github.com/Aditya-tm/Aditya-tm/blob/main/Adityabanner.png)
+![Aditya](https://github.com/AdityaXJha/AdityaXJha/blob/main/Adityabanner.png)
