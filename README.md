@@ -1,1 +1,3 @@
 ![Aditya](https://github.com/AdityaXJha/AdityaXJha/blob/main/dance.gif)
+
+Will update readme and my website soon, also readme or my website hasn't been updated for 3 years...
